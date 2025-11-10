@@ -1,4 +1,4 @@
-# Frieren Favorite
+# Frieren: Beyond Journey's End
 
 ## Summary
 **Frieren: Beyond Journey's End** follows Frieren, an elven mage who once journeyed with the hero Himmel and his companions to defeat the Demon King. Decades later, she reflects on their adventures and sets out on a new journey to understand humanity and emotion.
